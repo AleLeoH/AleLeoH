@@ -9,6 +9,7 @@ I want tobe remembered as a game developer that created games that made people f
  # Where To Find Me:
  - Sharing my journey on <a href="https://www.instagram.com/the.tech.leo/">Instagram
  - Books & Things📚 on <a href="https://www.goodreads.com/user/show/169337250-alexander">goodreads
+ - resposts on <a href="https://twitter.com/thetechleo">Twitter/X
 
   
 
